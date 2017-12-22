@@ -8,4 +8,4 @@ Thank you for your time.
 
 Cheers, 
 
-Auriane
+Santa Claus
